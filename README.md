@@ -16,3 +16,4 @@ Aqui estão algumas ideias para você começar:
 - ⚡ odeio que mexam no meu cabelo sem eu deixar, nao gosto que peguem no meu cabelo.
 - 🏋🏻 quero comecar uma academia
 
+![](https://media1.tenor.com/m/HJ8Nxo6FkI0AAAAC/broncos-hello.gif)
