@@ -16,4 +16,8 @@ Aqui estão algumas ideias para você começar:
 - ⚡ odeio que mexam no meu cabelo sem eu deixar, nao gosto que peguem no meu cabelo.
 - 🏋🏻 quero comecar uma academia
 
+[Morelli](http://www.comunidade.diaadia.pr.gov.br/modules/galeria/detalhe.php?foto=20&evento=5)
+
+  stephanie.goncalves.lima@escola.pr.gov.br
+
 ![](https://media1.tenor.com/m/HJ8Nxo6FkI0AAAAC/broncos-hello.gif)
